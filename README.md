@@ -1,0 +1,1 @@
+# akinoshindayo.github.io
